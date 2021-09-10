@@ -1,1 +1,0 @@
-# sfoly-home
